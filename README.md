@@ -1,1 +1,1 @@
-# my-website
+#Physics in daily life is a projected made to try bring the people closerr to science, most physics and astronomy and also teach the history of those things, for exemple, Hipatia's history a brilant woman who got killed just for the crime of think diferentlly. And also make people more familiar with the equations used in astrophysics.
